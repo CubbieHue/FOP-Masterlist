@@ -176,6 +176,8 @@ Snip the Tail <br />
 
 [Timmy's Hair & Info](https://cubbihue.tumblr.com/post/759048391409942528/i-love-itty-bitties-au-i-have-a-few-questions-1) <br />
 
+[How Tall is Timmy?](https://cubbihue.tumblr.com/post/760499144600305664/hi-how-small-is-timmy-turner-in-his-fairy-form-in) <br />
+
 <br />
 ┌───────────────┐<br />
   Peri Lore <br />
