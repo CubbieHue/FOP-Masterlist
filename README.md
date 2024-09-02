@@ -299,6 +299,8 @@ Adulthood in Fairy World<br />
 
 [After Work Hangout](https://cubbihue.tumblr.com/post/760386034797264896/does-fairy-timmy-ever-miss-his-human-friends-like) <br />
 
+[I Miss My Wife](https://cubbihue.tumblr.com/post/760496597647933440/cosmo-anytime-hes-away-from-wanda-i-miss-my) <br />
+
 **Peri's Adult Life** <br />
 [Flying? The Bus Is Better](https://cubbihue.tumblr.com/post/759009339097890816/why-is-flying-a-sore-spot-for-peri) <br />
 
