@@ -216,7 +216,8 @@ Baby Peri & Human Timmy <br />
 ┌──────────┐<br />
 Changeling On Earth<br />
 └──────────┘<br />
-[Babysitter Moving](https://cubbihue.tumblr.com/post/760393148465823744/hey-i-love-how-you-do-with-fairy-timmy-au-my)<br />
+[Babysitter Moving](https://cubbihue.tumblr.com/post/760393148465823744/hey-i-love-how-you-do-with-fairy-timmy-au-my) <br />
+[Teacher Retired](https://cubbihue.tumblr.com/post/760491899969847296/okay-since-nobodys-asked-up-until-this-point-i) <br />
 <br />
 ┌──────────┐<br />
 Moving to Fairy World<br />
