@@ -93,6 +93,8 @@ Snip the Tail <br />
 
 [Part 3](https://cubbihue.tumblr.com/post/760183989277458432/wasnt-gonna-put-in-another-ask-so-soon-but-ive) <br />
 
+[Part 4](https://cubbihue.tumblr.com/post/760479438086537216/most-amount-of-swaps-in-recorded-history-just-how) <br />
+
 **Peri and Irep** <br />
 [Part 1](https://cubbihue.tumblr.com/post/760007792729915392/cosmo-and-anti-cosmo-has-the-most-amount-of-swaps) <br />
 <br />
@@ -202,6 +204,8 @@ Baby Peri & Human Timmy <br />
 [Happy Family](https://cubbihue.tumblr.com/post/759389695475105792/its-aspiring-how-many-of-these-asks-youve) <br />
 
 [He Deserves Love](https://cubbihue.tumblr.com/post/759478852353474560/heeyyy-quick-question-i-was-going-through-your) <br />
+
+[The Offer](https://cubbihue.tumblr.com/post/760473897747529728/not-sure-if-its-been-answered-but-how-did-the) <br />
 
 [Making A Changeling](https://www.cubbihue.tumblr.com/759195204590927872/me-da-ganas-de-escribir-un-fanfic-sobre-tu-au-de) <br />
 
