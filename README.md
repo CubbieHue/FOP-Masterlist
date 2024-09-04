@@ -317,6 +317,7 @@
 />
 [Graduation](https://cubbihue.tumblr.com/post/760002769076764672/hallo-may-i-ask-for-a-family-picture-and-maybe) <br 
 />
+[Helpful Dad](https://cubbihue.tumblr.com/post/759391032895062016/hello-i-just-wanted-to-say-that-i-love-the) <br />
 
 <br />
 
@@ -358,8 +359,6 @@
 
 > ## **Peri's Adult Life** <br />
 > [Flying? The Bus Is Better](https://cubbihue.tumblr.com/post/759009339097890816/why-is-flying-a-sore-spot-for-peri) <br />
-> 
-> [Helpful Dad](https://cubbihue.tumblr.com/post/759391032895062016/hello-i-just-wanted-to-say-that-i-love-the) <br />
 > 
 > [Pop Quiz](https://cubbihue.tumblr.com/post/759198510137606144/would-peri-try-or-wnat-to-make-dev-a-fairy-seeing) <br />
 > 
