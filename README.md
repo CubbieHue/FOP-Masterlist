@@ -309,7 +309,11 @@
 />
 ["I'm failing"](https://cubbihue.tumblr.com/post/759310975188041728/i-love-you-nitrile-fairy-au-so-much-ah-anyways) <br 
 />
+[Pop Quiz](https://cubbihue.tumblr.com/post/759198510137606144/would-peri-try-or-wnat-to-make-dev-a-fairy-seeing) <br 
+/>
 [A Nice Drink](https://cubbihue.tumblr.com/post/760302144772620288/found-a-thimble-filled-it-with-cream-gave-it-to) <br 
+/>
+[Helpful Dad](https://cubbihue.tumblr.com/post/759391032895062016/hello-i-just-wanted-to-say-that-i-love-the) <br 
 />
 [Cramps](https://cubbihue.tumblr.com/post/760103455614484480/ah-so-while-timmy-adjusted-he-suffered-something) <br 
 />
@@ -317,8 +321,6 @@
 />
 [Graduation](https://cubbihue.tumblr.com/post/760002769076764672/hallo-may-i-ask-for-a-family-picture-and-maybe) <br 
 />
-[Helpful Dad](https://cubbihue.tumblr.com/post/759391032895062016/hello-i-just-wanted-to-say-that-i-love-the) <br />
-
 <br />
 
 ┌────────────────┐<br />
@@ -359,9 +361,7 @@
 
 > ## **Peri's Adult Life** <br />
 > [Flying? The Bus Is Better](https://cubbihue.tumblr.com/post/759009339097890816/why-is-flying-a-sore-spot-for-peri) <br />
-> 
-> [Pop Quiz](https://cubbihue.tumblr.com/post/759198510137606144/would-peri-try-or-wnat-to-make-dev-a-fairy-seeing) <br />
-> 
+>
 > [Recently Graduated Peri With Jorgen](https://cubbihue.tumblr.com/post/758498947844161536/more-itty-bitties-jorgen-is-very-hard-to-draw) <br />
 > 
 > [Peri Getting A Job](https://cubbihue.tumblr.com/post/758478967739203584/i-like-it-when-the-fairies-are-all-itty-bitty) <br />
