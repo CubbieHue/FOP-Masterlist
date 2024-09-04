@@ -420,6 +420,7 @@
 [Part 4](https://cubbihue.tumblr.com/post/759834071175249920/poor-timmy-he-must-be-so-confused) <br />
 [Part 5](https://cubbihue.tumblr.com/post/760038329365544960/oh-gosh-poor-guy-wasnt-allowed-into-the-human) <br />
 [Part 6](https://cubbihue.tumblr.com/post/760647131537211392/wait-timmy-isnt-allowed-in-the-human-world-is) <br />
+[Part 7](https://cubbihue.tumblr.com/post/760655354829864960/how-do-you-think-dev-would-react-to-the) <br />
 
 > : : **Intermission** : :<br />
 > [Cosmo, the whole idiot](https://cubbihue.tumblr.com/post/759646884561387520/cosmo-isnt-half-an-idiot-this-time-hes-the) <br />
