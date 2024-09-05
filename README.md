@@ -449,6 +449,12 @@
 />
 [Part 7](https://cubbihue.tumblr.com/post/760231124615184384/uhm-is-chimmy-changa-doing-well-its-seems-he-has) <br 
 />
+[Part 8](https://cubbihue.tumblr.com/post/760758035200327680/chimmy-mr-turner-sir-your-tie-is-loose-its) <br
+/>
+[Part 9](https://cubbihue.tumblr.com/post/760764945531092992/oh-gosh-poor-chimmy-even-if-the-changling-cant) <br
+/>
+[Part 10](https://cubbihue.tumblr.com/post/760765284020830208/t-h-e-y-d-i-d-n-t) <br
+/>
 
 > **Intermission** <br />
 > [Poke](https://cubbihue.tumblr.com/post/759683155931365376/i-like-to-imagine-myself-gently-poking-c-timmy) <br />
