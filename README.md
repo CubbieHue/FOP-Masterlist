@@ -38,7 +38,9 @@
 />
 [Wished Fairy-Child (with Hazel)](https://cubbihue.tumblr.com/post/759117059332374528/i-adore-your-itty-bitty-au-if-a-godchild-wishes) <br 
 />
-[Floating Vs Flying](https://cubbihue.tumblr.com/post/759031775122096128/hey-idk-if-youve-answered-this-before-but-is) <br />
+[Floating Vs Flying](https://cubbihue.tumblr.com/post/759031775122096128/hey-idk-if-youve-answered-this-before-but-is) <br
+/>
+[Fairy Children Info](https://cubbihue.tumblr.com/post/760770672637231104/so-is-the-risk-of-other-kids-getting-taken-and) <br />
 
 <br />
 
