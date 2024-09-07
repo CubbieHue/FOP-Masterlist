@@ -463,6 +463,15 @@
 > [Dramatic Solo](https://cubbihue.tumblr.com/post/759909899582996480/let-chimmy-sing-a-dramatic-solo-he-deserves-it) <br />
 > [Gender=Tired](https://cubbihue.tumblr.com/post/760012031831212032/is-chimmy-a-boy-is-chimmy-a-girl-no-chimmy-is) <br />
 
-
+┌─────┐<br />
+&nbsp;&nbsp; Fanart <br />
+└─────┘<br />
+[Microwave](https://www.tumblr.com/adultingpanda/758967559663009792/theres-this-tiktok-that-immediately-reminded-me) <br />
+[With Eyes As Dead As Mine](https://www.tumblr.com/bunnieswithknives/759539926227386368/what-a-blessing-to-meet-someone-like-you-with-eyes) <br />
+[ONE NORMAL THING A DAY](https://www.tumblr.com/bunnieswithknives/760111850887200769/ok-just-a-little-thing-because-im-insane) <br />
+[Awareness Syndrome](https://www.tumblr.com/bunnieswithknives/760284448175652864/awareness-syndrome-killerrabbitz-fairly) <br />
+[Many Timmys!](https://www.tumblr.com/reddaepic/760528438354395136/make-fanart-timmy-turner-but-fairy-i-just-can) <br />
+[Many Many Timmys!](https://www.tumblr.com/alanaartdream/760651164687712256/so-drawing-some-timmy-turner-fanart-and-then-just) <br />
+[AWEFUL](https://www.tumblr.com/clownjacket/760928929126236160/cubbihue-i-tried-to-imitate-your-style-i-dont) <br />
 
 # $${\color{red}𓊈 _\ The _\ End _\ 𓊉}$$ 
