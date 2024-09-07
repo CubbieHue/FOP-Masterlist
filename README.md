@@ -179,13 +179,13 @@
 └────────┘ <br />
 
 > \> **Fairy Consequences** <br />
+> [Magic Overflow](https://cubbihue.tumblr.com/post/760030124755271680/what-are-a-lot-of-the-main-consequences-for-a-kid) <br 
+/> 
 > [Information Overflow](https://cubbihue.tumblr.com/post/760133275761115136/knowing-what-he-knows-now-timmy-would-never) <br 
 />
 > [Changes, FOR A NEW FAMILY](https://cubbihue.tumblr.com/post/760381180151496705/wait-why-wouldnt-timmy-recommend-godkids-becomin) <br 
 /> 
 > [Pain Levels?](https://cubbihue.tumblr.com/post/760456997040734208/on-a-scale-from-stubbed-toe-to-springlock-failure) <br 
-/> 
-> [Magic Overflow](https://cubbihue.tumblr.com/post/760030124755271680/what-are-a-lot-of-the-main-consequences-for-a-kid) <br 
 /> 
 > [You've Met With A Terrible Fate](https://cubbihue.tumblr.com/post/759475298483011584/if-someone-does-realize-the-truth-about-timmy) <br />
 
