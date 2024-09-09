@@ -162,7 +162,7 @@
 /> 
 > [Static](https://cubbihue.tumblr.com/post/759124435389317120/what-do-you-mean-that-changeling-timmy-has-static) <br 
 />
-> [A Changeling's Fate](https://cubbihue.tumblr.com/post/761129192612102144/what-happens-to-chimmy-when-timmy-is-brought) <--------------------------------------- NEW! <br />
+> [A Changeling's Fate](https://cubbihue.tumblr.com/post/761129192612102144/what-happens-to-chimmy-when-timmy-is-brought) <br />
      
 <br />
 
@@ -192,7 +192,10 @@
 /> 
 > [Pain Levels?](https://cubbihue.tumblr.com/post/760456997040734208/on-a-scale-from-stubbed-toe-to-springlock-failure) <br 
 /> 
-> [You've Met With A Terrible Fate](https://cubbihue.tumblr.com/post/759475298483011584/if-someone-does-realize-the-truth-about-timmy) <br />
+> [You've Met With A Terrible Fate](https://cubbihue.tumblr.com/post/759475298483011584/if-someone-does-realize-the-truth-about-timmy) <br 
+/>
+> [A Terrible Fate For All Involved](https://cubbihue.tumblr.com/post/761137394957352960/no-one-should-have-to-bear-the-consequences-but) <br
+/>
 
 <br />
 
@@ -306,7 +309,7 @@
 > [Part 3](https://cubbihue.tumblr.com/post/760317660434202624/timmy-and-peris-relationship-is-so-important-to) <br 
 />
 
-[Peri Does A Flip!](https://cubbihue.tumblr.com/post/761133142507700224/hey-fairies-do-a-flip) <--------------------------------------- NEW! <br
+[Peri Does A Flip!](https://cubbihue.tumblr.com/post/761133142507700224/hey-fairies-do-a-flip) <br
 />
 
 <br />
@@ -330,7 +333,7 @@
 />
 [Jorgen Visits](https://cubbihue.tumblr.com/post/759315513917734912/what-is-jordgens-relationship-like-with-peri-and) <br 
 />
-[Jorgen Plays With His Nephews](https://cubbihue.tumblr.com/post/761130999768907776/heyyyyy-im-fully-in-love-with-your-itty-bittys) <--------------------------------------- NEW! <br
+[Jorgen Plays With His Nephews](https://cubbihue.tumblr.com/post/761130999768907776/heyyyyy-im-fully-in-love-with-your-itty-bittys) <br
 />
 [Graduation](https://cubbihue.tumblr.com/post/760002769076764672/hallo-may-i-ask-for-a-family-picture-and-maybe) <br 
 />
