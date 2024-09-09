@@ -149,7 +149,7 @@
 > \> **Making a Changeling** <br />
 > [You don't think about it](https://cubbihue.tumblr.com/post/759111792228237312/please-tell-changeling-timmy-i-he-also) <br 
 />
-> ["YES, AND"](https://cubbihue.tumblr.com/post/759133100616876032/kinda-love-that-the-changeling-was-meant-to-be-a) <--------------------------------------- NEW! <br 
+> ["YES, AND"](https://cubbihue.tumblr.com/post/759133100616876032/kinda-love-that-the-changeling-was-meant-to-be-a) <br 
 /> 
 > [He's just Timmy Turner](https://cubbihue.tumblr.com/post/758939675274690560/oooh-whats-changeling-timmy-like-are) <br 
 /> 
@@ -159,7 +159,7 @@
 /> 
 > [Static](https://cubbihue.tumblr.com/post/759124435389317120/what-do-you-mean-that-changeling-timmy-has-static) <br 
 />
-> [A Changeling's Fate](https://cubbihue.tumblr.com/post/761129192612102144/what-happens-to-chimmy-when-timmy-is-brought) <br />
+> [A Changeling's Fate](https://cubbihue.tumblr.com/post/761129192612102144/what-happens-to-chimmy-when-timmy-is-brought) <--------------------------------------- NEW! <br />
      
 <br />
 
