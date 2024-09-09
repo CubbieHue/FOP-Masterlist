@@ -224,7 +224,8 @@
 <br />
 
 > \> **Chosen Godchild** <br />
-> ???????????
+> [Part 1](https://cubbihue.tumblr.com/post/761183156694024192/did-peri-tell-timmy-that-he-was-planning-to-become) <br
+/>
 
 <br />
 
