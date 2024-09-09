@@ -40,7 +40,10 @@
 />
 [Floating Vs Flying](https://cubbihue.tumblr.com/post/759031775122096128/hey-idk-if-youve-answered-this-before-but-is) <br
 />
-[Fairy Children Info](https://cubbihue.tumblr.com/post/760770672637231104/so-is-the-risk-of-other-kids-getting-taken-and) <br />
+[Fairy Children Info](https://cubbihue.tumblr.com/post/760770672637231104/so-is-the-risk-of-other-kids-getting-taken-and) <br 
+/>
+[Ultimate Despair All You Can Eat Buffet??](https://cubbihue.tumblr.com/post/761135220456030208/when-you-said-that-the-unluckiest-person-is-most) <br
+/>
 
 <br />
 
