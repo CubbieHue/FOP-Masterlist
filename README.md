@@ -157,7 +157,9 @@
 /> 
 > [Are you Happy?](https://cubbihue.tumblr.com/post/759210027998445568/adult-changeling-timmy-im-your-biggest-fan-quick) <br 
 /> 
-> [Static](https://cubbihue.tumblr.com/post/759124435389317120/what-do-you-mean-that-changeling-timmy-has-static) <br />
+> [Static](https://cubbihue.tumblr.com/post/759124435389317120/what-do-you-mean-that-changeling-timmy-has-static) <br 
+/>
+> [A Changeling's Fate](https://cubbihue.tumblr.com/post/761129192612102144/what-happens-to-chimmy-when-timmy-is-brought) <br />
      
 <br />
 
