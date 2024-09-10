@@ -120,6 +120,8 @@
 />
 > [Part 4](https://cubbihue.tumblr.com/post/760479438086537216/most-amount-of-swaps-in-recorded-history-just-how) <br 
 />
+> [Part 5](https://cubbihue.tumblr.com/post/761194557785423872/hey-new-fan-of-your-bitties-au-love-your-work-so) <br
+/>
 
 <br />
 
