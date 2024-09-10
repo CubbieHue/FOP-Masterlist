@@ -401,11 +401,13 @@
 />
 [Big Hug](https://cubbihue.tumblr.com/post/759585192459534336/if-a-godkid-wants-a-hug-from-their-godparent-does) <br 
 />
-[Hazel and Dev with Nurse](https://cubbihue.tumblr.com/post/758917894501498880/could-you-draw-hazel-comfort-dev) <br 
+[Hazel And Dev With Nurse](https://cubbihue.tumblr.com/post/758917894501498880/could-you-draw-hazel-comfort-dev) <br 
 />
 [How To Get Away With Mu-](https://cubbihue.tumblr.com/post/759029708044255232/i-imagine-that-cosmo-and-wanda-wouldnt-think-to) <br 
 />
-[Visiting the Wells Family](https://cubbihue.tumblr.com/post/761210541948731392/i-need-to-know-what-coswan-think-of-hazels) <br
+[Visiting The Wells Family](https://cubbihue.tumblr.com/post/761210541948731392/i-need-to-know-what-coswan-think-of-hazels) <br
+/>
+> [Elaborating CosWan And the Wells Family](https://cubbihue.tumblr.com/post/761211935439142912/sometimes-ya-gotta-submit-some-wholesome-bait-it) <br
 />
 
 > **Peri and the Au Pairs** <br />
