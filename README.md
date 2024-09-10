@@ -277,6 +277,8 @@
 
 [Welcome Home Timmy](https://cubbihue.tumblr.com/post/759043632748740608/thank-you-for-replying-to-my-last-ask-i-loved-it) <br 
 />
+[Who the F-](https://cubbihue.tumblr.com/post/761189123444883456/im-just-picturing-some-background-fairy-quietly) <br
+/>
 [Regret?](https://cubbihue.tumblr.com/post/759942347145494528/how-do-you-think-did-timmy-from-time-to-time) <br 
 />
 [Anti-Cosmo fight](https://cubbihue.tumblr.com/post/760398828513968129/how-did-the-anti-fairies-react-when-timmy-became-a) <br 
