@@ -78,7 +78,10 @@
 > \> **Taken Fairy Dev Dimmadome** <br />
 > [Hypothetical Fairy]( https://cubbihue.tumblr.com/post/759656260870324224/fully-a-hypothetical-what-would-dev-look-like-as) <br 
 />
-> [His Hair](https://cubbihue.tumblr.com/post/759666579838517248/in-the-very-hypothetical-situation-where-dev-is) <br />
+> [His Hair](https://cubbihue.tumblr.com/post/759666579838517248/in-the-very-hypothetical-situation-where-dev-is) <br 
+/>
+> [What Have You Done](https://cubbihue.tumblr.com/post/761387232417513472/how-would-the-others-react-if-dev-got-to-chance) <br
+/>
 
 <br />
 
