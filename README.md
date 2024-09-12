@@ -526,7 +526,7 @@
 > [Gender=Tired](https://cubbihue.tumblr.com/post/760012031831212032/is-chimmy-a-boy-is-chimmy-a-girl-no-chimmy-is) <br />
 
 #####
-Fanart (Posts)
+# 𓊈 FANART SECTION 𓊉 <br />
 -----
 ### [ dultingpanda ]</br>
 >__Traditional__</br>
