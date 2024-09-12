@@ -68,6 +68,8 @@
 />
 [Norm the Genie](https://cubbihue.tumblr.com/post/761374531010052096/ive-been-reading-a-lot-of-your-au-and-i-was) <br
 />
+[Chloe Carmichael](https://cubbihue.tumblr.com/post/761390738917425152/does-chloe-still-exist-in-ur-au) <br
+/>
 
 <br />
 
