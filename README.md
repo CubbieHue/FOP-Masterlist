@@ -62,7 +62,12 @@
 />
 [Jorgen and Tooth Fairy](https://cubbihue.tumblr.com/post/759841750339747841/i-just-wanna-say-that-i-loveee-how-you-draw-jorgen) <br 
 />
-[Irep](https://cubbihue.tumblr.com/post/760005380457791488/what-irep-like-in-your-bitties-au) <br />
+[Irep](https://cubbihue.tumblr.com/post/760005380457791488/what-irep-like-in-your-bitties-au) <br
+/>
+[Goldie Goldenglow](https://cubbihue.tumblr.com/post/761310651227455488/what-is-irep-and-goldiethe-triangle-fairy-up-to) <br
+/>
+[Norm the Genie](https://cubbihue.tumblr.com/post/761374531010052096/ive-been-reading-a-lot-of-your-au-and-i-was) <br
+/>
 
 <br />
 
@@ -123,6 +128,8 @@
 > [Part 4](https://cubbihue.tumblr.com/post/760479438086537216/most-amount-of-swaps-in-recorded-history-just-how) <br 
 />
 > [Part 5](https://cubbihue.tumblr.com/post/761194557785423872/hey-new-fan-of-your-bitties-au-love-your-work-so) <br
+/>
+> [Part 6](https://cubbihue.tumblr.com/post/761313563176484864/how-does-cosmos-and-anti-cosmos-feel-about) <br
 />
 
 <br />
@@ -195,7 +202,9 @@
 > [Changes, FOR A NEW FAMILY](https://cubbihue.tumblr.com/post/760381180151496705/wait-why-wouldnt-timmy-recommend-godkids-becomin) <br 
 /> 
 > [Pain Levels?](https://cubbihue.tumblr.com/post/760456997040734208/on-a-scale-from-stubbed-toe-to-springlock-failure) <br 
-/> 
+/>
+> [Soul Tampering](https://cubbihue.tumblr.com/post/761303925096923136/hey-uh-am-i-misinterpreting-something-or-have-you) <br
+/>
 > [You've Met With A Terrible Fate](https://cubbihue.tumblr.com/post/759475298483011584/if-someone-does-realize-the-truth-about-timmy) <br 
 />
 > [A Terrible Fate For All Involved](https://cubbihue.tumblr.com/post/761137394957352960/no-one-should-have-to-bear-the-consequences-but) <br
@@ -241,6 +250,8 @@
 &nbsp;&nbsp; Baby Peri & Human Timmy <br />
 └─────────────────┘ <br />
 
+[Walking Home](https://cubbihue.tumblr.com/post/761307335673118720/how-do-cosmo-and-wanda-view-timmys-parents) <br
+/>
 [Cookies](https://cubbihue.tumblr.com/post/758956448082444288/loving-your-changing-fairy-timmy-au-also-i-gotta) <br 
 />
 [Newborn Peri](https://cubbihue.tumblr.com/post/760207483744731136/since-the-fairies-are-so-tiny-in-this-au-how) <br 
