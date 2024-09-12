@@ -127,19 +127,19 @@
 └───────────┘<br />
 
 > **Cosmo and Anti-Cosmo** <br />
-> [Part 1](https://cubbihue.tumblr.com/post/759406725209161728/swapping-courts-you-say-i-am-very-interested-in) <br 
+> [Initial Swaps](https://cubbihue.tumblr.com/post/759406725209161728/swapping-courts-you-say-i-am-very-interested-in) <br 
 /> 
-> [Part 2](https://cubbihue.tumblr.com/post/759490786880602112/fairies-and-anti-fairies-can-swap-courts-you-say) <br 
+> [So Bright](https://cubbihue.tumblr.com/post/759490786880602112/fairies-and-anti-fairies-can-swap-courts-you-say) <br 
 /> 
-> [Part 3](https://cubbihue.tumblr.com/post/760183989277458432/wasnt-gonna-put-in-another-ask-so-soon-but-ive) <br 
+> [Heartbreak](https://cubbihue.tumblr.com/post/760183989277458432/wasnt-gonna-put-in-another-ask-so-soon-but-ive) <br 
 />
-> [Part 4](https://cubbihue.tumblr.com/post/760479438086537216/most-amount-of-swaps-in-recorded-history-just-how) <br 
+> [Ah.](https://cubbihue.tumblr.com/post/760479438086537216/most-amount-of-swaps-in-recorded-history-just-how) <br 
 />
-> [Part 5](https://cubbihue.tumblr.com/post/761194557785423872/hey-new-fan-of-your-bitties-au-love-your-work-so) <br
+> [Benefits](https://cubbihue.tumblr.com/post/761194557785423872/hey-new-fan-of-your-bitties-au-love-your-work-so) <br
 />
-> [Part 6](https://cubbihue.tumblr.com/post/761313563176484864/how-does-cosmos-and-anti-cosmos-feel-about) <br
+> [Eugh!!](https://cubbihue.tumblr.com/post/761313563176484864/how-does-cosmos-and-anti-cosmos-feel-about) <br
 />
-> [Part 7](https://cubbihue.tumblr.com/post/761388261225742336/how-many-swaps-have-cosmo-and-anti-cosmo-have) <br
+> [Flustered](https://cubbihue.tumblr.com/post/761388261225742336/how-many-swaps-have-cosmo-and-anti-cosmo-have) <br
 />
 
 <br />
