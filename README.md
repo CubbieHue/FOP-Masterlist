@@ -139,6 +139,8 @@
 />
 > [Part 6](https://cubbihue.tumblr.com/post/761313563176484864/how-does-cosmos-and-anti-cosmos-feel-about) <br
 />
+> [Part 7](https://cubbihue.tumblr.com/post/761388261225742336/how-many-swaps-have-cosmo-and-anti-cosmo-have) <br
+/>
 
 <br />
 
