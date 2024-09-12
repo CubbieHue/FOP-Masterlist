@@ -75,7 +75,7 @@
 &nbsp;&nbsp;  Alt AU<br />
 └─────┘<br />
 
-> \> **Fairy Dev Dimmadome** <br />
+> \> **Taken Fairy Dev Dimmadome** <br />
 > [Hypothetical Fairy]( https://cubbihue.tumblr.com/post/759656260870324224/fully-a-hypothetical-what-would-dev-look-like-as) <br 
 />
 > [His Hair](https://cubbihue.tumblr.com/post/759666579838517248/in-the-very-hypothetical-situation-where-dev-is) <br />
@@ -88,6 +88,8 @@
 
 <br />
 
+> \> **Fairy Children** <br />
+> [School's Out](https://cubbihue.tumblr.com/post/761376666395213824/if-youre-taking-itty-bitty-requests-have-you) <br />
 [//]: # (██▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓██)
 # 𓊈 Non-Plot Side Stories 𓊉 <br />
 [//]: # (██▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓██)
