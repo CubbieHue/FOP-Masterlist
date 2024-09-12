@@ -525,15 +525,104 @@
 > [Dramatic Solo](https://cubbihue.tumblr.com/post/759909899582996480/let-chimmy-sing-a-dramatic-solo-he-deserves-it) <br />
 > [Gender=Tired](https://cubbihue.tumblr.com/post/760012031831212032/is-chimmy-a-boy-is-chimmy-a-girl-no-chimmy-is) <br />
 
-┌─────┐<br />
-&nbsp;&nbsp; Fanart <br />
-└─────┘<br />
-[Microwave](https://www.tumblr.com/adultingpanda/758967559663009792/theres-this-tiktok-that-immediately-reminded-me) <br />
-[With Eyes As Dead As Mine](https://www.tumblr.com/bunnieswithknives/759539926227386368/what-a-blessing-to-meet-someone-like-you-with-eyes) <br />
-[ONE NORMAL THING A DAY](https://www.tumblr.com/bunnieswithknives/760111850887200769/ok-just-a-little-thing-because-im-insane) <br />
-[Awareness Syndrome](https://www.tumblr.com/bunnieswithknives/760284448175652864/awareness-syndrome-killerrabbitz-fairly) <br />
-[Many Timmys!](https://www.tumblr.com/reddaepic/760528438354395136/make-fanart-timmy-turner-but-fairy-i-just-can) <br />
-[Many Many Timmys!](https://www.tumblr.com/alanaartdream/760651164687712256/so-drawing-some-timmy-turner-fanart-and-then-just) <br />
-[AWEFUL](https://www.tumblr.com/clownjacket/760928929126236160/cubbihue-i-tried-to-imitate-your-style-i-dont) <br />
+#####
+Fanart (Posts)
+-----
+### [ dultingpanda ]</br>
+>__Traditional__</br>
+>[Microwave](https://www.tumblr.com/adultingpanda/758967559663009792/theres-this-tiktok-that-immediately-reminded-me) <br />
 
-# $${\color{red}𓊈 _\ The _\ End _\ 𓊉}$$ 
+---
+
+### [ bunnieswithknives ] </br>
+>__Digital__ </br>
+> [With Eyes As Dead As Mine](https://www.tumblr.com/bunnieswithknives/759539926227386368/what-a-blessing-to-meet-someone-like-you-with-eyes) <br />
+
+> __Video__ </br>
+> [ONE NORMAL THING A DAY](https://www.tumblr.com/bunnieswithknives/760111850887200769/ok-just-a-little-thing-because-im-insane) <br />
+
+> __Writing__ <br />
+> [Awareness Syndrome](https://www.tumblr.com/bunnieswithknives/760284448175652864/awareness-syndrome-killerrabbitz-fairly) <br />
+
+---
+
+### [ reddaepic ] </br>
+>__Digital__ </br>
+> [Many Timmys!](https://www.tumblr.com/reddaepic/760528438354395136/make-fanart-timmy-turner-but-fairy-i-just-can) <br />
+
+---
+
+### [ alanaartdream ] </br>
+> __Traditional__ </br>
+> [Many Many Timmys!](https://www.tumblr.com/alanaartdream/760651164687712256/so-drawing-some-timmy-turner-fanart-and-then-just) <br />
+
+---
+
+### [ clownjacket ] </br>
+>__Digital__ </br>
+>[AWEFUL](https://www.tumblr.com/clownjacket/760928929126236160/cubbihue-i-tried-to-imitate-your-style-i-dont) 
+---
+
+### [ theweirdestroller ]
+>__Digital__ </br>
+>[Itty Bitty Peri](https://www.tumblr.com/theweirdestroller/760232113489477632/close-up-of-my-itty-bitty-peri-fanart-i-did-he-is) </br>
+> [Itty Bitty Cosmo](https://www.tumblr.com/theweirdestroller/760757272400084992/im-not-even-gonna-try-and-defend-myself-anymore)
+
+<br />
+<br />
+
+
+---
+
+# Fanart (Asks)
+
+### [ theweirdestroller ]
+>__Digital__ </br>
+> [Itty bitty Cosmo!](https://cubbihue.tumblr.com/post/760766605975224320/after-much-trial-and-error-ive-made-it-itty) </br>
+> [P-peri's and cream](https://cubbihue.tumblr.com/post/760316320405454848/had-to-make-more-fanart-because-because-p-peris) </br>
+> [Cream (Duplicate link)](https://cubbihue.tumblr.com/post/760302144772620288/found-a-thimble-filled-it-with-cream-gave-it-to) </br>
+> [A tiny hug for Peri](https://cubbihue.tumblr.com/post/760231278116225024/i-always-love-seeing-your-responses-would-you) </br>
+> [Timmy, Peri, and a very confused Chimmy!](https://cubbihue.tumblr.com/post/760292694187737088/running-over-waving-a-piece-of-digital-art-in-the)
+
+>__Traditional__ </br>
+> [Little family, pen for scale](https://cubbihue.tumblr.com/post/760847975603912704/i-saw-the-notes-about-wanda-being-taller-and) </br>
+> [Little Cosmo](https://cubbihue.tumblr.com/post/760837880299110400/alright-i-wasnt-gonna-share-this-but-it-came) </br>
+> [Peri with a whole sword](https://cubbihue.tumblr.com/post/760386172393586688/i-gave-him-the-sword-that-came-with-my-drink) </br>
+> [Restaurant doodles](https://cubbihue.tumblr.com/post/760379278520188928/i-bestow-upon-you-my-bored-resturant-doodles-on) </br>
+
+---
+### [ valleymyristica ]
+>__Digital__ </br>
+>[Get Out Chimmy](https://cubbihue.tumblr.com/post/760811231246483456/black-or-white-night-or-day-im-sure-either)
+
+---
+### [ alanaartdream ]
+>__Digital__ </br>
+>[Itty Bitties Fairy Timmy ](https://cubbihue.tumblr.com/post/760485912773869568/love-your-itty-bitties-fairy-timmy-au-did-a)
+
+---
+### [ clownjacket ]
+>__Funny__</br>
+[When will Chimmy come back from the war?](https://cubbihue.tumblr.com/post/759940409759776768/im-not-an-artist-dont-judge-me-but-i-had-to)
+
+---
+### [ floofballsammy ] 
+> __Meme's__ </br>
+>[Meme #1](https://cubbihue.tumblr.com/post/759957032803631104/figured-id-share-these-for-some-reason-theyre) </br>
+>[Meme #2](https://cubbihue.tumblr.com/post/760225262298415104/more-memes-i-wanted-to-draw-some-of-them-but)
+---
+</br>
+
+# Huey Chorus
+
+> [Tell us about Huey](https://www.tumblr.com/cubbihue/760204801328005121/tell-us-about-huey) </br>
+> [Huey's high court variant](https://cubbihue.tumblr.com/post/760208879166554112/so-whats-hueys-high-court-variant-like-since-he) </br>
+> [Anti-fairy diet](https://cubbihue.tumblr.com/post/760201350011289600/you-know-you-mention-about-anti-fairy-diete-and) </br>
+> [Hearing about Huey's counterpart](https://cubbihue.tumblr.com/post/760214591230935040/hearing-about-hueys-counterpart-being-extremely) </br>
+> [Overlap](https://cubbihue.tumblr.com/post/760108575596167168/since-theres-a-lot-of-overlap-what-would-you-say) </br>
+
+### Fanart
+
+>[ emway99 ] </br>
+> [Observing Them.](https://www.tumblr.com/emway99/760848875244388352/observing-them) </br>
+> [Emersyn - A Thing In-between](https://www.tumblr.com/emway99/760226857887088640/emersyn-a-thing-in-between-honestly-between-the)
