@@ -120,7 +120,10 @@
 />
 [With Timmy](https://cubbihue.tumblr.com/post/759287764168622080/graaah-you-hooked-me-onto-your-little-bitties-fop) <br 
 />
-[With Cosmo](https://cubbihue.tumblr.com/post/759651988744044544/oh-no-has-dev-walked-into-his-room-to-find-it) <br />
+[With Cosmo](https://cubbihue.tumblr.com/post/759651988744044544/oh-no-has-dev-walked-into-his-room-to-find-it) <br 
+/>
+[Reigning Champion](https://cubbihue.tumblr.com/post/761410335053889537/somost-of-them-your-choice-on-who-get-put-in-a) <br
+/>
 
 <br />
 
@@ -235,7 +238,13 @@
 /> 
 > [Timmy's Hair & Info](https://cubbihue.tumblr.com/post/759048391409942528/i-love-itty-bitties-au-i-have-a-few-questions-1) <br 
 /> 
-> [How Tall is Timmy?](https://cubbihue.tumblr.com/post/760499144600305664/hi-how-small-is-timmy-turner-in-his-fairy-form-in) <br />
+> [How Tall is Timmy?](https://cubbihue.tumblr.com/post/760499144600305664/hi-how-small-is-timmy-turner-in-his-fairy-form-in) <br 
+/>
+> [Be a Godparent?](https://cubbihue.tumblr.com/post/761410632458420224/popping-in-here-to-ask-my-first-question-far-in) <br
+/>
+> [How Long Until Full Fairy?](https://cubbihue.tumblr.com/post/761410818996895744/wait-hang-on-so-is-the-reason-why-timmy-is-a) <br
+/>
+> [Loyalty](https://cubbihue.tumblr.com/post/761411169368064000/so-pixies-regularly-try-to-take-over-fairyworld) <br />
 
 <br />
 ┌──────┐<br />
@@ -445,6 +454,8 @@
 > [Part 3](https://cubbihue.tumblr.com/post/759279863716839425/can-ya-make-peri-wear-this-d) <br 
 />
 > [Part 4](https://cubbihue.tumblr.com/post/759284304033529856/people-will-probably-think-peri-is-a-doll-dev-put) <br 
+/>
+> [Part 5](https://cubbihue.tumblr.com/post/761410149117263872/what-if-peri-got-his-tail-caught-in-the-rotors-of) <br
 />
 
 <br />
