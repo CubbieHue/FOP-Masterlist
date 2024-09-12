@@ -399,6 +399,8 @@
 />
 > [I Miss My Wife](https://cubbihue.tumblr.com/post/760496597647933440/cosmo-anytime-hes-away-from-wanda-i-miss-my) <br 
 />
+> [No Beating Heart](https://cubbihue.tumblr.com/post/761381587512410112/is-becoming-a-fairy-a-bad-thing-if-timmy-is-so) <br
+/>
 
 <br />
 
