@@ -620,6 +620,7 @@
 > [Anti-fairy diet](https://cubbihue.tumblr.com/post/760201350011289600/you-know-you-mention-about-anti-fairy-diete-and) </br>
 > [Hearing about Huey's counterpart](https://cubbihue.tumblr.com/post/760214591230935040/hearing-about-hueys-counterpart-being-extremely) </br>
 > [Overlap](https://cubbihue.tumblr.com/post/760108575596167168/since-theres-a-lot-of-overlap-what-would-you-say) </br>
+> [Huey, Hubert and others](https://cubbihue.tumblr.com/post/760841810478235648/since-u-struggling-with-chimmy-here-is-a-free)
 
 ### Fanart
 
