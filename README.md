@@ -321,6 +321,8 @@
 />
 [Unwish?](https://cubbihue.tumblr.com/post/761472400899604480/does-timmy-have-any-regrets-about-becoming-a) <br
 />
+[Ferw Up](https://cubbihue.tumblr.com/post/761488384294354944/he-ferw-up-bitties-series-start-previous) <br
+/>
 [Anti-Cosmo fight](https://cubbihue.tumblr.com/post/760398828513968129/how-did-the-anti-fairies-react-when-timmy-became-a) <br 
 />
 [Mama Cosma](https://cubbihue.tumblr.com/post/759587346566037504/como-fue-todo-el-proceso-del-pensamiento-de-si) <br 
