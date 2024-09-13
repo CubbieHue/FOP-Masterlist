@@ -304,6 +304,8 @@
 />
 [Injuries? Or Play?](https://cubbihue.tumblr.com/post/760503844837949440/looking-at-those-bandages-on-young-changling) <br 
 />
+[Something Off?](https://cubbihue.tumblr.com/post/761480071823441920/has-aj-and-chester-ever-secretly-talked-to-each) <br
+/>
 
 <br />
 
