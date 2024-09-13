@@ -419,6 +419,8 @@
 />
 > [No Beating Heart](https://cubbihue.tumblr.com/post/761381587512410112/is-becoming-a-fairy-a-bad-thing-if-timmy-is-so) <br
 />
+> [Friends?](https://cubbihue.tumblr.com/post/761473754035585024/does-timmy-have-any-friends-in-fairy-world) <br
+/>
 
 <br />
 
