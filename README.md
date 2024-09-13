@@ -386,6 +386,8 @@
 />
 [Delinquent](https://cubbihue.tumblr.com/post/761219306190209024/youre-itty-bitty-au-is-so-peak-can-we-get-more) <br
 />
+[Deck Irep?](https://cubbihue.tumblr.com/post/761492319383011328/genuinely-has-timmy-ever-decked-irep-for-peri) <br
+/>
 <br />
 
 ┌────────────────┐<br />
