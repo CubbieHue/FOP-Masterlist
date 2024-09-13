@@ -317,6 +317,8 @@
 />
 [Regret?](https://cubbihue.tumblr.com/post/759942347145494528/how-do-you-think-did-timmy-from-time-to-time) <br 
 />
+[Unwish?](https://cubbihue.tumblr.com/post/761472400899604480/does-timmy-have-any-regrets-about-becoming-a) <br
+/>
 [Anti-Cosmo fight](https://cubbihue.tumblr.com/post/760398828513968129/how-did-the-anti-fairies-react-when-timmy-became-a) <br 
 />
 [Mama Cosma](https://cubbihue.tumblr.com/post/759587346566037504/como-fue-todo-el-proceso-del-pensamiento-de-si) <br 
