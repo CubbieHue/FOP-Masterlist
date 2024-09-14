@@ -380,6 +380,8 @@
 />
 [Jorgen Plays With His Nephews](https://cubbihue.tumblr.com/post/761130999768907776/heyyyyy-im-fully-in-love-with-your-itty-bittys) <br
 />
+[Timmy's Teacher!](https://cubbihue.tumblr.com/post/761635021088063488/who-was-timmys-teacher-at-pixie-school-was-it) <br
+/>
 [Graduation](https://cubbihue.tumblr.com/post/760002769076764672/hallo-may-i-ask-for-a-family-picture-and-maybe) <br 
 />
 [Name Change?](https://cubbihue.tumblr.com/post/760665340518793216/how-did-timmy-react-to-peris-name-change) <br
