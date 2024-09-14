@@ -25,7 +25,10 @@
 /> 
 [What Do Fairies Eat?](https://cubbihue.tumblr.com/post/759474415181365248/it-is-5am-and-i-read-through-the-whole-blog-and-i)<br 
 /> 
-[Anti-Fairy Diet](https://cubbihue.tumblr.com/post/760201350011289600/you-know-you-mention-about-anti-fairy-diete-and) <br />
+[Anti-Fairy Diet](https://cubbihue.tumblr.com/post/760201350011289600/you-know-you-mention-about-anti-fairy-diete-and) <br 
+/>
+[Chicken or Egg?](https://cubbihue.tumblr.com/post/761639142668058624/im-curious-did-fairy-food-or-fairies-come) <br
+/>
 
 <br />
 
@@ -367,6 +370,8 @@
 ["Hey, Mom"](https://cubbihue.tumblr.com/post/759184559348776960/does-timmy-still-refer-to-cosmo-wanda-by-their) <br 
 />
 ["I'm failing"](https://cubbihue.tumblr.com/post/759310975188041728/i-love-you-nitrile-fairy-au-so-much-ah-anyways) <br 
+/>
+[TO THE RESCUE](https://cubbihue.tumblr.com/post/761638003311558656/i-remember-a-time-where-timmy-asked-for-an-older) <br
 />
 [Pop Quiz](https://cubbihue.tumblr.com/post/759198510137606144/would-peri-try-or-wnat-to-make-dev-a-fairy-seeing) <br 
 />
