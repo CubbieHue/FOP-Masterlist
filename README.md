@@ -466,6 +466,8 @@
 />
 > [Elaborating CosWan And the Wells Family](https://cubbihue.tumblr.com/post/761211935439142912/sometimes-ya-gotta-submit-some-wholesome-bait-it) <br
 />
+> [Playing D&D](https://cubbihue.tumblr.com/post/761668263037059072/hey-if-hazel-dev-and-the-gang-play-dnd-what-do) <br
+/>
 
 > **Peri and the Au Pairs** <br />
 > [Part 1](https://cubbihue.tumblr.com/post/758829109693562880/although-fairies-have-wings-and-floaty-crowny) <br 
