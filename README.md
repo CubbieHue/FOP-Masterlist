@@ -29,6 +29,8 @@
 />
 [Chicken or Egg?](https://cubbihue.tumblr.com/post/761639142668058624/im-curious-did-fairy-food-or-fairies-come) <br
 />
+[Is Dev Good or Bad Food?](https://cubbihue.tumblr.com/post/761651822616363008/question-if-fairies-rely-on-desire-to) <br
+/>
 
 <br />
 
