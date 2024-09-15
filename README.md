@@ -193,7 +193,10 @@
 /> 
 > [Static](https://cubbihue.tumblr.com/post/759124435389317120/what-do-you-mean-that-changeling-timmy-has-static) <br 
 />
-> [A Changeling's Fate](https://cubbihue.tumblr.com/post/761129192612102144/what-happens-to-chimmy-when-timmy-is-brought) <br />
+> [A Changeling's Fate](https://cubbihue.tumblr.com/post/761129192612102144/what-happens-to-chimmy-when-timmy-is-brought) <br 
+/>
+> [Hazel Puppet?](https://cubbihue.tumblr.com/post/761662294151331840/would-the-hazel-puppet-we-see-in-a-few-of-the) <br
+/>
      
 <br />
 
