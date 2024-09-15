@@ -382,6 +382,8 @@
 />
 [Pop Quiz](https://cubbihue.tumblr.com/post/759198510137606144/would-peri-try-or-wnat-to-make-dev-a-fairy-seeing) <br 
 />
+[Stressed](https://cubbihue.tumblr.com/post/761669014946725888/what-does-timmy-think-of-his-little-brother-peri) <br
+/>
 [A Nice Drink](https://cubbihue.tumblr.com/post/760302144772620288/found-a-thimble-filled-it-with-cream-gave-it-to) <br 
 />
 [Helpful Dad](https://cubbihue.tumblr.com/post/759391032895062016/hello-i-just-wanted-to-say-that-i-love-the) <br 
