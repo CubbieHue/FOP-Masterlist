@@ -100,6 +100,7 @@
 
 > \> **Fairy Children** <br />
 > [School's Out](https://cubbihue.tumblr.com/post/761376666395213824/if-youre-taking-itty-bitty-requests-have-you) <br />
+> [Bitty Hazel!](https://cubbihue.tumblr.com/post/761669976044290048/saw-your-design-for-fairy-dev-would-you-ever-do) <br />
 
 <br />
 
