@@ -212,7 +212,10 @@
 /> 
 > [-Memory-](https://cubbihue.tumblr.com/post/759237533584556032/what-happens-if-a-changeling-meets-the-person)<br 
 />
-> [Dislikes Muffins?](https://cubbihue.tumblr.com/post/761647700725972992/chimmy-changa-timmy-why-do-you-hate-muffins-am-i) <br/>
+> [Dislikes Muffins?](https://cubbihue.tumblr.com/post/761647700725972992/chimmy-changa-timmy-why-do-you-hate-muffins-am-i) <br
+/>
+> [Other Dislikes?](https://cubbihue.tumblr.com/post/761674004275871744/i-was-just-looking-at-you-itty-bitty-fop-au-its) <br
+/>
 
 <br />
 
