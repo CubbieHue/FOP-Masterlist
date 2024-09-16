@@ -453,6 +453,8 @@
 />
 > [Friends?](https://cubbihue.tumblr.com/post/761473754035585024/does-timmy-have-any-friends-in-fairy-world) <br
 />
+> [Why the Hate?](https://cubbihue.tumblr.com/post/761775785788030976/he-knows-timmy-will-come-around-eventually-its) <br
+/>
 
 <br />
 
