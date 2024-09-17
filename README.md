@@ -77,6 +77,8 @@
 />
 [Chloe Carmichael](https://cubbihue.tumblr.com/post/761390738917425152/does-chloe-still-exist-in-ur-au) <br
 />
+[Blonda & Schnozmo](https://cubbihue.tumblr.com/post/761851455984549888/it-would-be-nice-to-hear-from-wanda-and-cosmo-it) <br
+/>
 
 <br />
 
