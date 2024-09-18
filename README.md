@@ -16,6 +16,8 @@
 />
 [Fairy Rulers](https://cubbihue.tumblr.com/post/761753314096545792/i-just-have-a-quick-question-is-titania-a-part-of) <br
 />
+[Fairy Realms & Bindings](https://cubbihue.tumblr.com/post/761939252855586816/im-curious-if-an-fairy-changes-court-like) <br
+/>
 <br />
 
 ┌───────┐<br />
@@ -379,6 +381,8 @@
 />
 
 [Peri Does A Flip!](https://cubbihue.tumblr.com/post/761133142507700224/hey-fairies-do-a-flip) <br
+/>
+[Brought Home a Stray](https://cubbihue.tumblr.com/post/761934814725259264/i-just-want-to-see-cosmo-wanda-timmy-prei-and) <br
 />
 
 <br />
