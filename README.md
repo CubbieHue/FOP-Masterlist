@@ -461,6 +461,8 @@
 />
 > [Why the Hate?](https://cubbihue.tumblr.com/post/761775785788030976/he-knows-timmy-will-come-around-eventually-its) <br
 />
+> [Chaos at Pixie Corp](https://cubbihue.tumblr.com/post/761904238016200704/the-plot-on-earth-happening-everyone-crowing) <br
+/>
 
 <br />
 
