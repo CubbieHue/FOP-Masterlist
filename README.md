@@ -202,6 +202,8 @@
 />
 > [Hazel Puppet?](https://cubbihue.tumblr.com/post/761662294151331840/would-the-hazel-puppet-we-see-in-a-few-of-the) <br
 />
+> [Internal Thoughts](https://cubbihue.tumblr.com/post/761911149563379713/so-a-changeling-is-sort-of-like-a-p-zombie-for) <br
+/>
      
 <br />
 
