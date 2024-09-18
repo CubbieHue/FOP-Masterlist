@@ -408,6 +408,8 @@
 />
 [Timmy's Teacher!](https://cubbihue.tumblr.com/post/761635021088063488/who-was-timmys-teacher-at-pixie-school-was-it) <br
 />
+[Tutelage](https://cubbihue.tumblr.com/post/761919790870822912/ok-this-is-gonna-sound-fun-but-did-timmy-ever-get) <br
+/>
 [Graduation](https://cubbihue.tumblr.com/post/760002769076764672/hallo-may-i-ask-for-a-family-picture-and-maybe) <br 
 />
 [Name Change?](https://cubbihue.tumblr.com/post/760665340518793216/how-did-timmy-react-to-peris-name-change) <br
