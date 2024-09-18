@@ -471,7 +471,10 @@
 >
 > [Recently Graduated Peri With Jorgen](https://cubbihue.tumblr.com/post/758498947844161536/more-itty-bitties-jorgen-is-very-hard-to-draw) <br />
 > 
-> [Peri Getting A Job](https://cubbihue.tumblr.com/post/758478967739203584/i-like-it-when-the-fairies-are-all-itty-bitty) <br />
+> [Peri Getting A Job](https://cubbihue.tumblr.com/post/758478967739203584/i-like-it-when-the-fairies-are-all-itty-bitty) <br 
+/>
+> [A Break From It All](https://cubbihue.tumblr.com/post/761922442887364608/since-peris-in-his-early-twenties-and-timmys-in) <br
+/>
 
 <br />
 
