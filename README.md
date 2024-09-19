@@ -467,6 +467,10 @@
 />
 > [Chaos at Pixie Corp](https://cubbihue.tumblr.com/post/761904238016200704/the-plot-on-earth-happening-everyone-crowing) <br
 />
+> [Tossing Norm Away](https://cubbihue.tumblr.com/post/762027556022239232/you-said-that-none-of-timmy-family-and-friends) <br
+/>
+> [Uncomfortable Questions...](https://cubbihue.tumblr.com/post/762027861855076352/i-get-the-feel-norm-was-out-of-the-loop-until) <br
+/>
 
 <br />
 
