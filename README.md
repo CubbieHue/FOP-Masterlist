@@ -671,8 +671,13 @@
 > __Meme's__ </br>
 >[Meme #1](https://cubbihue.tumblr.com/post/759957032803631104/figured-id-share-these-for-some-reason-theyre) </br>
 >[Meme #2](https://cubbihue.tumblr.com/post/760225262298415104/more-memes-i-wanted-to-draw-some-of-them-but)
+
 ---
+### [_samthecookielord_]
+> __Object AU__ </br>
+>[Objects!](https://www.tumblr.com/samthecookielord/762026690889367553/of-course-i-had-to-design-the-certified-average)</br>
 </br>
+---
 
 # Huey Chorus
 
