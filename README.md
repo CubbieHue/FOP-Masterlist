@@ -279,7 +279,7 @@
 
 <br />
 
-> \> **Chosen Godchild** <br />
+> \> **Peri's Assignment** <br />
 > [Part 1](https://cubbihue.tumblr.com/post/761183156694024192/did-peri-tell-timmy-that-he-was-planning-to-become) <br
 />
 > [Part2](https://cubbihue.tumblr.com/post/762104263182827520/so-whyd-peri-get-assigned-dev-as-his-first) <br
