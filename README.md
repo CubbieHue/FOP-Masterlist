@@ -284,6 +284,10 @@
 />
 > [Part2](https://cubbihue.tumblr.com/post/762104263182827520/so-whyd-peri-get-assigned-dev-as-his-first) <br
 />
+> [Part 3](https://cubbihue.tumblr.com/post/762108258789081088/jorgen-is-in-charge-of-many-departments-with-many) <br
+/>
+> [Part 4](https://cubbihue.tumblr.com/post/762111796359413760/indeed-why-did-peri-get-assigned-dev-as-his-first) <br
+/>
 
 <br />
 
