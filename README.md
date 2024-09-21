@@ -121,7 +121,10 @@
 />
 [Squish](https://cubbihue.tumblr.com/post/760105009702731776/do-fairies-make-a-noise-when-you-gently-squish) <br 
 /> 
-[Grisp](https://cubbihue.tumblr.com/post/760298272188448768/grisps-the-fairy) <br />
+[Grisp](https://cubbihue.tumblr.com/post/760298272188448768/grisps-the-fairy) <br 
+/>
+[Why Legs?](https://cubbihue.tumblr.com/post/762195880822571008/a-question-for-the-fairies-why-do-yall-have-legs) <br
+/>
 
 <br />
 
@@ -410,8 +413,6 @@
 />
 [A Nice Drink](https://cubbihue.tumblr.com/post/760302144772620288/found-a-thimble-filled-it-with-cream-gave-it-to) <br 
 />
-[Helpful Dad](https://cubbihue.tumblr.com/post/759391032895062016/hello-i-just-wanted-to-say-that-i-love-the) <br 
-/>
 [Cramps](https://cubbihue.tumblr.com/post/760103455614484480/ah-so-while-timmy-adjusted-he-suffered-something) <br 
 />
 [Jorgen Visits](https://cubbihue.tumblr.com/post/759315513917734912/what-is-jordgens-relationship-like-with-peri-and) <br 
@@ -423,6 +424,10 @@
 [Tutelage](https://cubbihue.tumblr.com/post/761919790870822912/ok-this-is-gonna-sound-fun-but-did-timmy-ever-get) <br
 />
 [Graduation](https://cubbihue.tumblr.com/post/760002769076764672/hallo-may-i-ask-for-a-family-picture-and-maybe) <br 
+/>
+[Anti-Pixies Family Photo!](https://cubbihue.tumblr.com/post/762218523801075712/can-we-see-a-family-photo-buut-from-the-anti) <br
+/>
+[Helpful Dad](https://cubbihue.tumblr.com/post/759391032895062016/hello-i-just-wanted-to-say-that-i-love-the) <br 
 />
 [Name Change?](https://cubbihue.tumblr.com/post/760665340518793216/how-did-timmy-react-to-peris-name-change) <br
 />
