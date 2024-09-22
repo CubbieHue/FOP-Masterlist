@@ -18,6 +18,8 @@
 />
 [Fairy Realms & Bindings](https://cubbihue.tumblr.com/post/761939252855586816/im-curious-if-an-fairy-changes-court-like) <br
 />
+[Fairy Marriages](https://cubbihue.tumblr.com/post/762300197383651328/do-fairies-get-married-like-humans-do-in-this-au) <br
+/>
 <br />
 
 ┌───────┐<br />
