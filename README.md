@@ -687,16 +687,21 @@
 >[Meme #2](https://cubbihue.tumblr.com/post/760225262298415104/more-memes-i-wanted-to-draw-some-of-them-but)
 
 ---
-### [_samthecookielord_]
+### [ samthecookielord ]
 > __Object AU__ </br>
 >[Objects!](https://www.tumblr.com/samthecookielord/762026690889367553/of-course-i-had-to-design-the-certified-average) </br>
 
 ---
-
-### [_dairy-godmother_]
+### [ dairy-godmother ]
 > __Many Peris__ </br>
 >[Many Peris](https://www.tumblr.com/dairy-godmother/762616520723562496/i-broke-tumblr-twice-trying-to-post-this-well-i) </br>
 </br>
+
+---
+### [ bubbleberryuniverse ]
+> __Bitty Timmy!__ </br>
+> [Bitty Timmy!](https://bubbleberryuniverse.tumblr.com/post/762741334833594368/did-a-silly-lil-wb-doodle-of-uhuhhh-timmy-from) </br>
+
 ---
 
 # Huey Chorus
