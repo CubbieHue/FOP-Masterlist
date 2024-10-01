@@ -282,6 +282,29 @@
 > [Gifted Kid Burnout](https://cubbihue.tumblr.com/post/758586494704336896/im-combining-my-two-favorite-peri-hcs-into-one) <br 
 />
 
+> \> **Instability** <br />
+> [Part 1](https://cubbihue.tumblr.com/post/762530401725054976/timmys-graduation-from-pixies-academy-was-a-very) <br
+/>
+> [Part 2](https://cubbihue.tumblr.com/post/762532147694387200/peris-no-good-terrible-bad-day-just-seems-to-get) <br
+> />
+> [Part 3](https://cubbihue.tumblr.com/post/762534960449093633/bitties-series-start-previous-you) <br
+> />
+> [Part 4](https://cubbihue.tumblr.com/post/762537365560573952/what-would-peris-power-level-be-if-he-didnt-have) <br
+> />
+> [Part 5](https://cubbihue.tumblr.com/post/762735526764855296/although-fairies-appear-humanoid-in-nature-they) <br
+> />
+> [Part 6](https://cubbihue.tumblr.com/post/762741869139591168/in-the-aftermath-of-peris-tantrum-the-leisure) <br
+> />
+> [Part 7](https://cubbihue.tumblr.com/post/762751762355634176/if-timmy-struggled-with-adjusting-to-magic-because) <br
+> />
+> [Part 8](https://cubbihue.tumblr.com/post/763094541174767616/due-to-recent-advances-in-fairy-technologies-a) <br
+> />
+> [Part 9](https://cubbihue.tumblr.com/post/763098953775448064/when-poof-awoke-the-day-after-the-graduation) <br
+> />
+> [Part 10](https://cubbihue.tumblr.com/post/763103257641025536/the-consequences-for-gravely-harming-several) <br
+> />
+> [Part 11](https://cubbihue.tumblr.com/post/763106890301538304/peri-was-very-upset-about-a-lot-of-things-that) <br
+
 <br />
 
 > \> **Peri's Assignment** <br />
