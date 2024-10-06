@@ -57,6 +57,8 @@
 />
 [Ultimate Despair All You Can Eat Buffet??](https://cubbihue.tumblr.com/post/761135220456030208/when-you-said-that-the-unluckiest-person-is-most) <br
 />
+[Is Secret Wish Canon?](https://cubbihue.tumblr.com/post/763560874569039872/hi-i-recently-stumbled-upon-your-silly-bitties-au) <br
+/>
 
 <br />
 
