@@ -83,6 +83,8 @@
 />
 [Blonda & Schnozmo](https://cubbihue.tumblr.com/post/761851455984549888/it-would-be-nice-to-hear-from-wanda-and-cosmo-it) <br
 />
+[Big Daddy](https://cubbihue.tumblr.com/post/763559747459989504/could-we-maybe-get-some-big-daddy-content-maybe) <br
+/>
 
 <br />
 
@@ -141,6 +143,8 @@
 />
 [Reigning Champion](https://cubbihue.tumblr.com/post/761410335053889537/somost-of-them-your-choice-on-who-get-put-in-a) <br
 />
+[Skilled Player](https://cubbihue.tumblr.com/post/763397549154533376/since-peri-has-problems-with-flight-does-irep-also) <br
+/>
 
 <br />
 
@@ -168,6 +172,7 @@
 
 > **Peri and Irep** <br />
 > [Part 1](https://cubbihue.tumblr.com/post/760007792729915392/cosmo-and-anti-cosmo-has-the-most-amount-of-swaps) <br />
+> [Part 2](https://cubbihue.tumblr.com/post/763398806138126336/vhnemdkjf-purble-irep-can-we-see-more-fairy-irep) <br />
 
 <br />
 
@@ -519,6 +524,8 @@
 > [Peri Getting A Job](https://cubbihue.tumblr.com/post/758478967739203584/i-like-it-when-the-fairies-are-all-itty-bitty) <br 
 />
 > [A Break From It All](https://cubbihue.tumblr.com/post/761922442887364608/since-peris-in-his-early-twenties-and-timmys-in) <br
+/>
+> [What Are You Doing.](https://cubbihue.tumblr.com/post/763388132989304832/do-peri-and-irep-still-get-along-they-were) <br
 />
 
 <br />
