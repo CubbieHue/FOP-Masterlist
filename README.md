@@ -101,6 +101,8 @@
 />
 > [What Have You Done](https://cubbihue.tumblr.com/post/761387232417513472/how-would-the-others-react-if-dev-got-to-chance) <br
 />
+> [Pixies' Favorite](https://cubbihue.tumblr.com/post/763927970719154176/omg-can-we-see-more-of-fairy-dev) <br
+/>
 
 <br />
 
