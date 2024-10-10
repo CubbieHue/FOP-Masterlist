@@ -236,6 +236,8 @@
 />
 > [Other Dislikes?](https://cubbihue.tumblr.com/post/761674004275871744/i-was-just-looking-at-you-itty-bitty-fop-au-its) <br
 />
+> [If He Had A Child?](https://cubbihue.tumblr.com/post/763822239473942528/what-if-chimmytim-turners-child-had-a-fairy) <br
+/>
 
 <br />
 
@@ -478,6 +480,8 @@
 > ## **Timmy's Adult Life** <br />
 >
 > [Jorgen's Favorite Pixie](https://cubbihue.tumblr.com/post/758946779313176576/jorgen-has-an-entire-staff-of-pixies-to-help-him) <br 
+/>
+> [Tooth's Favorite Teeth](https://cubbihue.tumblr.com/post/763837253946621952/does-the-tooth-fairy-now-have-an-even-bigger) <br
 />
 > [Business Partners](https://cubbihue.tumblr.com/post/759201160033943552/are-there-any-other-pixies-or-is-timmy-the-only) <br 
 />
