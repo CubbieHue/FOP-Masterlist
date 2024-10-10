@@ -256,6 +256,8 @@
 />
 > [Soul Tampering](https://cubbihue.tumblr.com/post/761303925096923136/hey-uh-am-i-misinterpreting-something-or-have-you) <br
 />
+> [Mental Changes?](https://cubbihue.tumblr.com/post/763922622078697472/did-timmy-change-like-mentally-when-he) <br
+/>
 > [You've Met With A Terrible Fate](https://cubbihue.tumblr.com/post/759475298483011584/if-someone-does-realize-the-truth-about-timmy) <br 
 />
 > [A Terrible Fate For All Involved](https://cubbihue.tumblr.com/post/761137394957352960/no-one-should-have-to-bear-the-consequences-but) <br
