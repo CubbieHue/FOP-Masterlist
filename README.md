@@ -91,6 +91,10 @@
 />
 [Big Daddy](https://cubbihue.tumblr.com/post/763559747459989504/could-we-maybe-get-some-big-daddy-content-maybe) <br
 />
+[Father Time](https://cubbihue.tumblr.com/post/767839431712522240/i-know-that-even-tho-father-time-was-not-happy) <br
+/>
+[Cupid](https://cubbihue.tumblr.com/post/767839494850428928/if-leisure-fairies-are-human-sized-what-does-that) <br
+/>
 
 <br />
 
@@ -529,6 +533,8 @@
 />
 > [Uncomfortable Questions...](https://cubbihue.tumblr.com/post/762027861855076352/i-get-the-feel-norm-was-out-of-the-loop-until) <br
 />
+> [Found Things](https://cubbihue.tumblr.com/post/767839335056801792/timmy-would-love-to-listen-to-girly-pop-songs-he) <br
+/>
 
 <br />
 
@@ -589,8 +595,6 @@
 />
 > [Timmy's Cameo: He Hears About Them](https://cubbihue.tumblr.com/post/759206306147188736/does-timmy-ever-visit-peri-or-cosmo-and-wanda) <br 
 />
-
-<br />
 
 [Going to School](https://cubbihue.tumblr.com/post/767839166501453824/supposedly-peris-stopped-too-hm-hmmm-that) <br
 />
