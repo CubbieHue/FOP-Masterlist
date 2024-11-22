@@ -228,6 +228,10 @@
 />
 > [Internal Thoughts](https://cubbihue.tumblr.com/post/761911149563379713/so-a-changeling-is-sort-of-like-a-p-zombie-for) <br
 />
+> [How to Solve a Problem](https://cubbihue.tumblr.com/post/767840450265612288/since-a-changlings-role-is-to-replace-the-child-as) <br
+/>
+> [Types of Changelings](https://cubbihue.tumblr.com/post/767842243744874496/if-hazel-had-a-changeling-then-what-would-they-be) <br
+/>
      
 <br />
 
@@ -527,6 +531,8 @@
 />
 > [Why the Hate?](https://cubbihue.tumblr.com/post/761775785788030976/he-knows-timmy-will-come-around-eventually-its) <br
 />
+> [Waiting out the Hate](https://cubbihue.tumblr.com/post/767841242729136128/of-course-hp-is-cool-with-waiting-for-years-just) <br
+/>
 > [Chaos at Pixie Corp](https://cubbihue.tumblr.com/post/761904238016200704/the-plot-on-earth-happening-everyone-crowing) <br
 />
 > [Tossing Norm Away](https://cubbihue.tumblr.com/post/762027556022239232/you-said-that-none-of-timmy-family-and-friends) <br
@@ -600,6 +606,8 @@
 
 [Going to School](https://cubbihue.tumblr.com/post/767839166501453824/supposedly-peris-stopped-too-hm-hmmm-that) <br
 />
+[Fairy Rat!](https://cubbihue.tumblr.com/post/767841593037357056/can-i-turn-them-into-rats) <br
+/>
 
 [comment]: # (██▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓██)
 
@@ -655,6 +663,7 @@
 > [Poke](https://cubbihue.tumblr.com/post/759683155931365376/i-like-to-imagine-myself-gently-poking-c-timmy) <br />
 > [Dramatic Solo](https://cubbihue.tumblr.com/post/759909899582996480/let-chimmy-sing-a-dramatic-solo-he-deserves-it) <br />
 > [Gender=Tired](https://cubbihue.tumblr.com/post/760012031831212032/is-chimmy-a-boy-is-chimmy-a-girl-no-chimmy-is) <br />
+> [It Will Fix Him](https://cubbihue.tumblr.com/post/767841418965319680/chimmy-should-smoke-some-weed-itll-fix-him) <br />
 
 #####
 # 𓊈 FANART SECTION 𓊉 <br />
