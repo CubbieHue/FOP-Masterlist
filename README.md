@@ -592,6 +592,9 @@
 
 <br />
 
+[Going to School](https://cubbihue.tumblr.com/post/767839166501453824/supposedly-peris-stopped-too-hm-hmmm-that) <br
+/>
+
 [comment]: # (██▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓██)
 
 # 𓊈 Current Plot Stories 𓊉 <br />
